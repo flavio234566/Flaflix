@@ -14,4 +14,4 @@ A escolha perfeita
 
 Obrigada a ir para a faculdade contra a vontade, a rebelde Beca não se interessa em participar de atividades extracurriculares, até surgir a oportunidade de ingressar no grupo musical Barden Bella e competir no Campeonato Regional de Música.
 
-![](https://media1.tenor.com/m/ujCYMd1Buu4AAAAd/pitch-perfect-barden-bellas.gif)
+![](https://media1.tenor.com/m/e6Cnb9WS0C4AAAAd/anna-kendrick-excited.gif)
