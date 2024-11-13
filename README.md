@@ -20,7 +20,7 @@ Norbit
 
 Desde que foi abandonado em um orfanato, Norbit sempre teve uma vida muito dura. Agora, casado com Rasputia, sua vida é ainda pior. Mas tudo muda quando sua antiga namorada volta à cidade.
 
-![](https://media1.tenor.com/m/Xc9wepIEwd0AAAAd/risas.gif)
+![](https://media1.tenor.com/m/XKnDg5eWB1UAAAAC/rasputia-norbit.gif)
 
 Paprika
 
