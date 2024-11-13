@@ -9,3 +9,9 @@ A escola da Lucy
  é uma carta de amor aos professores, e um agradecimento ao impacto que eles podem ter em uma criança. O filme explora o medo da mudança e mostra como Lucy, com a ajuda de seus amigos, enfrenta e supera os próprios medos.
 
 ![](https://media1.tenor.com/m/-e4WLirEocsAAAAd/lucy-lucy-van-pelt.gif)
+
+A escolha perfeita 
+
+Obrigada a ir para a faculdade contra a vontade, a rebelde Beca não se interessa em participar de atividades extracurriculares, até surgir a oportunidade de ingressar no grupo musical Barden Bella e competir no Campeonato Regional de Música.
+
+![](https://media1.tenor.com/m/ujCYMd1Buu4AAAAd/pitch-perfect-barden-bellas.gif)
